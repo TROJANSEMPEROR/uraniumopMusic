@@ -1,7 +1,7 @@
-### PRIVATE REMPO BY CARBON 💙
+### PRIVATE REMPO BY 𝚄𝚁𝙰𝙽𝙸𝚄𝙼 💙
 
 
-<p align="center"><a href="https://t.me/itz_Carbon"><img src="https://telegra.ph/file/5710e8c2dbeec9d06eb22.jpg"></a></p>
+<p align="center"><a href="https://t.me/itz_Carbon"><img src="https://telegra.ph/file/1c3a0881baf1a0b90a63f.jpg"></a></p>
 
 
 
@@ -18,4 +18,4 @@
 
 
 
-### SEMX 🥺
+### gudiya 🥺
